@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Millzy696
-- 
 - I’m interested in running and staying active. I am transitioning over the next 3 years to a new career. I enjoy coding and the challenge of learning a totally new 
 - set of skills. I am learning for self-satisfaction, however, if I become proficient, then perhaps a career in development maybe on the cards.
 
